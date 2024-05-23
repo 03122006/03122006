@@ -8,7 +8,7 @@ Meu nome e Ingrid Andrade
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
-### Você entrar em contato comigo 📫
+### Para entrar em contato comigo 📫
 
 ingridpadua8@gmail.com 
 
